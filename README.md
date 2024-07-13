@@ -1,1 +1,0 @@
-# kvik_dil
